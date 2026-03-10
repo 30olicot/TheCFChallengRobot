@@ -1,3 +1,1 @@
-## A CEDAR FALLS CHALLENGE!
-
-Updated weekly!
+## CEDAR FALLS, IA
